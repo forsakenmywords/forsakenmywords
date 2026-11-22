@@ -1,7 +1,7 @@
 ## Im too fucking lazy to do a readme sorry
 -Minor
 
--Dni: Basic Dni, pro-shippers, pjSSKK fans, HHazbin HHotel fans , ForSSaKKKen fans and etc
+-Dni: Basic Dni, pro-shippers, hazbin hotel, TFC, AFK-Farmers, etc
 
 -Stuff im Into: Cannelle, Ethel cain, Chxrry and etc
 
